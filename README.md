@@ -1,4 +1,4 @@
-Hey, I’m Treble — a professional Roblox scripter with 1+ years of experience and hundreds of hours spent mastering the platform.
+Hey, I’m Treble — a professional Roblox scripter with 2+ years of experience and hundreds of hours spent mastering the platform.
 
 I specialize in building complete, production-ready systems such as:
 
